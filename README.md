@@ -1,0 +1,1 @@
+# Procesor-programistyczny-Piorun-Nie-2-2-1-niepe-nosprawny-gratis-np-matematyk-schiza.
